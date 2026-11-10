@@ -53,4 +53,4 @@ get solutions, not blame.
 
 ## Find me
 
-[LinkedIn](https://www.linkedin.com/in/amirulbahriaziz/) · [Threads](https://www.threads.com/@amirulbahriaziz) · amirulbahriaziz@outlook.com · Portfolio coming soon
+[LinkedIn](https://www.linkedin.com/in/amirulbahriaziz/) · amirulbahriaziz@outlook.com · Portfolio coming soon
